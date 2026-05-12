@@ -1,4 +1,4 @@
-# 
+# elite NFT Mint Bot for nft sniper bot | real-time-monitoring & rarity-analysis offers the most advanced nft sniper bot, with real-time-monitoring and rarity-analysis. Ideal for
 
 
 
